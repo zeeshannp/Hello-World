@@ -1,2 +1,2 @@
 # Hello-World
-Be who you are and say what you feel, because those who mind don't matter and those who matter don't mind
+The best way to predict the future is to invent it.
